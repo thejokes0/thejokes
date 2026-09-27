@@ -1,6 +1,5 @@
-# thejokes0
-hello my name is tiffany ||
-i use she/her pronouns ||
-read my Rentry if u want ||
-omg thr father and son vibes ❤️❤️ 
-![Reigen and mob](https://i.pinimg.com/736x/30/bc/c4/30bcc451e9792160fa1fed43aa650006.jpg)
+<div align=”center”> 
+<p> hiii my name is tiffany <br> </p>
+<p> i use she/her pronouns & im 7teen </p>
+<p> read my rentry if you want. it kinda says the same thing as here ig </p>
+ <img src=“https://i.pinimg.com/736x/8f/9f/40/8f9f405fe30739b15853fff3dd771f11.jpg“ width=“50%”> 
